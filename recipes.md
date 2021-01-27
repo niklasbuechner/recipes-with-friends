@@ -9,6 +9,9 @@ https://www.chefkoch.de/rezepte/831281187765616/Gnocchi-Spinat-Auflauf-mit-Haehn
 Kaiserschmarrn
 https://www.gutekueche.at/veganer-kaiserschmarrn-rezept-24539
 
+Kartoffelsuppe
+https://www.madamecuisine.de/omas-kartoffelsuppe/#wprm-recipe-container-15881
+
 One-bowl Vegan Cowboy Cookies
 https://www.pickuplimes.com/single-post/2020/11/12/one-bowl-vegan-cowboy-cookies
 
